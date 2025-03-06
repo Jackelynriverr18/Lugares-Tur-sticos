@@ -1,1 +1,1 @@
-# Lugares-Tur-sticos
+# Lugares-Turisticos
